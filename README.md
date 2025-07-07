@@ -21,4 +21,4 @@
 本站采用全站HTTPS和CDN加速技术，保证高速、安全访问；图片和视频封面均做了压缩优化，快速加载不卡顿；封面图和页面重要元素均加ALT标签，有利于搜索引擎收录和排名提升。全站通过多层内链，将各分类页、女优页、影片详情页紧密连接，让蜘蛛轻松抓取站内所有内容，提升整站权重。
 
 立即收藏本站，获取日本AV高清免费资源第一手更新，尊享无广告、高清免费、每日更新的极致看片体验！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnn2611dtn2611/160000 ）</span>
